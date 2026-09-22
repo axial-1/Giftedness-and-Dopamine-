@@ -1,5 +1,9 @@
-Let me clarify that I’m not saying dopamine is highly harmful; I’m simply saying that it plays a role in our existence that dates back millennia, and to reduce it to a modern phenomenon—or to claim that addiction didn’t exist historically—is to ignore human biology itself.
 
+I drew on observations in the following areas:
+
+Expressions related to the rotation of feeds in people I see in person-how they assimilate information and express what they have assimilated by observing the way they construct that information-how paraphilias and fetishes function in people-observation of changes in people's diets over the course of their lives
+
+--------------------------------------------
 
 ## A Brief Analysis of Dopamine and Giftedness 
 
@@ -60,4 +64,7 @@ Eating one stale piece of bread and nine different foods for 10 consecutive days
 
 Conclusion of the formulation—Modernity and addiction are not innovations; they have always existed, hidden beneath physical and material limitations. History bears witness to the evolution of these pathways.
 
+--------------------------------------------
+
+Let me clarify that I’m not saying dopamine is highly harmful; I’m simply saying that it plays a role in our existence that dates back millennia, and to reduce it to a modern phenomenon—or to claim that addiction didn’t exist historically—is to ignore human biology itself.
 
